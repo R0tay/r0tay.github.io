@@ -1,1 +1,0 @@
-# Zober no čo už
